@@ -4,7 +4,7 @@ With **5+ years of experience** in digital marketing, lead generation, and sales
 
 ## 🚀 What I Do
 
-I’m the founder of **1stRankQ**, where we build **AI-powered automation systems** designed to solve real-world business problems. From automating repetitive tasks to creating full-fledged AI agents, my goal is to **save time, reduce costs, and increase efficiency** for:
+I’m the founder of **ChroniqAI**, where we build **AI-powered automation systems** designed to solve real-world business problems. From automating repetitive tasks to creating full-fledged AI agents, my goal is to **save time, reduce costs, and increase efficiency** for:
 
 - Founders & CEOs  
 - Fast-scaling startups  
